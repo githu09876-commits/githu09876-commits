@@ -43,8 +43,8 @@ I'm looking for an opportunity as a **fresher in AI / GenAI / Software Developme
 
 ## 📫 Connect With Me
 
-📧 Email: your-email@example.com  
-💼 LinkedIn: Add your LinkedIn profile
+📧 Email: githu09876@gmail.com  
+💼 LinkedIn: https://www.linkedin.com/in/githu-githwin-4974222b2/?lipi=urn%3Ali%3Apage%3Ap_mwlite_feed%3BlCYe%2B%2B3hQJ2fHTV6oTlcdg%3D%3D
 
 ---
 
